@@ -1,4 +1,4 @@
-# 
+# Mis à jour perpetual trading bot préréglages pour Mac OS | Ultime perpetual trading bot préréglages pour PC Windows. Avec support de marge croisée et audits de sécurité — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
